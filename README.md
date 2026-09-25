@@ -9,7 +9,7 @@
 
 ###
 
-<img data-importer="image" align="right" height="120" src="https://media1.tenor.com/m/k-7S4OjrJ0cAAAAd/daredevil-daredevil-dog.gif"  />
+<img data-importer="image" align="right" height="120" src="https://i.imgur.com/jSAVoTx.gif"  />
 
 ###
 
